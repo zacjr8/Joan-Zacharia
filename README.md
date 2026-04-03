@@ -11,7 +11,7 @@ I started my journey as a software developer, but cyber security quickly capture
 
 🚀 I find cyber security fascinating and am committed to level-up my skills in risk management and data privacy.
 
-🕵️‍♂️ Part-time Bug Bounty.
+🕵️‍♂️ Part-time DJ.
 
 ### Outside reality
 
